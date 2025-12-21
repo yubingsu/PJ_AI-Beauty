@@ -1,1 +1,1 @@
-# PJ_Amorepacific-AI-INNOVATION-CHALLENGE
+추후 이름 수정
